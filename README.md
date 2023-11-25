@@ -1,4 +1,5 @@
-![github-header-image (8)](https://github.com/ramaardanaa/ramaardanaa/assets/57292815/d6af17e7-3e1f-4d6f-ae7e-512368f52660)
+![github-header-image (11)](https://github.com/ramaardanaa/ramaardanaa/assets/57292815/cae04837-7666-41b9-81f1-31fe786884f9)
+
 
 ### Hi there 👋
 
