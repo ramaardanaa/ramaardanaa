@@ -7,4 +7,4 @@
 - 🌱 I’m currently learning AI/ML, Blockchain, and Web3
 - 👯 I’m looking to collaborate / contribute on open source project
 - 📫 How to reach me: ramaardanaa@gmail.com
-- 😄 Pronouns: ra-ma
+
